@@ -7,7 +7,7 @@ Source: [Vegan Richa](https://www.veganricha.com/baked-aloo-gobi-vegan-recipe/)
 * 1 c. à thé curcuma
 * 1 c. à thé cumin
 * 1 c. à thé coriandre moulue
-* ⅓ c. à thé cayenne
+* 1/3 c. à thé cayenne
 * ½ c. à thé garam masala ou cari
 * 1 c. à thé sel
 * 1 c. à table gingembre

@@ -8,7 +8,7 @@ Source: [Cook with Manali](https://www.cookwithmanali.com/aloo-palak/)
 * 5-6 gousses d'ail hachées
 * 3 piments rouges piquants écrasés (ou poudre chili, ou sriracha)
 * 1 petit oignon
-* 4 patates coupées en dés de 1/2 po
+* 4 patates coupées en dés de ½ po
 * ¼ c. à thé curcuma
 * ½ c. à thé coriandre en poudre
 * ¼ c. à thé poudre chili

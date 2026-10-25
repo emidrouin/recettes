@@ -5,9 +5,9 @@ Source: Inconnue
 Pour un pain de 2 lbs
 * 1 ½ t. lait (végétal) tiède
 * 4 c. soupe margarine ou beurre ramolli
-* 4 t. - 2 c.à table farine
+* 4 t. MOINS 2 c.à table farine
 * 2 c. à table farine de gluten
-* 2. c. à table sucre
+* 2 c. à table sucre
 * 1 c. à thé sel
 * 1 ½ c. à thé levure
 
